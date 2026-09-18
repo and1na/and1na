@@ -7,5 +7,4 @@
      "`-0-0-' "`-0-0-' "`-0-0-' "`-0-0-' "`-0-0-' "`-0-0-' 
 ```
 
-<img src="https://profile-counter.glitch.me/and1na/count.svg" />
 
